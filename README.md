@@ -1,1 +1,1 @@
-# Minha-indica-o-da-semana-Ruptura-Severance-
+# Minha-indica-o-da-semana-Ruptura-Severance-Na recomendação escrita por Marcela Santos, ela indica a série **Ruptura (Severance)** como uma produção envolvente, visualmente impecável e cheia de mistérios. A trama acompanha funcionários de uma empresa que passam por uma cirurgia para separar suas memórias profissionais das memórias da vida pessoal, resultando em uma história capaz de prender o espectador do início ao fim.
