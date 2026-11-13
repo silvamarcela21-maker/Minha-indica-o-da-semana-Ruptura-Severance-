@@ -1,0 +1,1 @@
+# Minha-indica-o-da-semana-Ruptura-Severance-
